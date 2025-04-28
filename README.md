@@ -10,8 +10,3 @@ OBSERVAÇÃO: Adicionar uma cobertura simples de chocolate após o bolo
 
 esfriar.
 
-DICAS DE PREPARO:
-
-- Para um bolo mais fofo, peneire a farinha de trigo.
-
-- Você pode adicionar nozes picadas à massa para um toque especial.
